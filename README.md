@@ -1,51 +1,48 @@
-# krrrn_
-Девчата пляшут под спидами
-(Девчата пляшут под спидами),
-А ты стоишь как вкопанный
-(А ты стоишь как вкопанный).
-Кроссовками ломают пол
-(Кроссовками ломают пол).
-А ты стоишь как вкопанный.
-Ну что за мать его дерьмо?
-Я знаю, что ты хочешь,
-Ты хочешь танцевать.
-Ну-ну же, ну давай же,
-Ну-ну же, ну давай же.
-Я знаю, что ты знаешь этот трек,
-Готовься подпевать.
-Раз, два, три, четыре.
-Музыка громче, глаза закрыты
-Это! нон стоп! ночью открытий
-Делай, что хочешь я забываюсь
-Это! нон стоп! Не прекращаясь!
-Музыка громче, глаза закрыты
-Это! нон стоп! ночью открытий
-Буду с тобой самой примерною
-Утро в окне и мы будем первые!
-Этот трек делает тебя сильней
-Он прикольней, чем колеса
-И роднее, чем портвейн.
-Раза в три круче, чем самый первый секс-партнер.
-И все девчата в таком трипе,
-Что аж мама не горюй.
-Прыгай так, прыгай так
-Будто ты совсем дурак.
-Прыгай так, так и так и так, так
-Ты же воздух как никак.
-Прыгай так, прыгай так
-Будто ты чу покемон.
-Будто бы вся твоя жизнь
-Не такое уж дерьмо.
-Ну что за мать его дерьмо?
-Музыка громче, глаза закрыты
-Это! нон стоп! ночью открытий
-Делай, что хочешь я забываюсь
-Это! нон стоп! Не прекращаясь!
-Музыка громче, глаза закрыты
-Это! нон стоп! ночью открытий
-Буду с тобой самой примерною
-Утро в окне и мы будем первые!
-Я забываюсь, помоги мне.
-Я задыхаюсь, помоги мне.
-Делай, что хочешь я задыхааааюсь.
-
+Last Christmas
+Oh, oh-oh, ooh-oh-oh-oh
+Ah-ah
+Last Christmas, I gave you my heart
+But the very next day, you gave it away
+This year, to save me from tears
+I'll give it to someone special
+Last Christmas, I gave you my heart
+But the very next day, you gave it away (you gave it away)
+This year, to save me from tears
+I'll give it to someone special (special)
+Once bitten and twice shy
+I keep my distance, but you still catch my eye
+Tell me, baby, do you recognize me?
+Well, it's been a year, it doesn't surprise me
+"Merry Christmas, " I wrapped it up and sent it
+With a note saying, "I love you, " I meant it
+Now I know what a fool I've been
+But if you kissed me now, I know you'd fool me again
+Last Christmas, I gave you my heart
+But the very next day, you gave it away (you gave it away)
+This year, to save me from tears
+I'll give it to someone special (special)
+Last Christmas, I gave you my heart
+But the very next day, you gave it away
+This year, to save me from tears
+I'll give it to someone special (special)
+A crowded room, friends with tired eyes
+I'm hiding from you, and your soul of ice
+My God, I thought you were someone to rely on
+Me? I guess I was a shoulder to cry on
+A face on a lover with a fire in his heart
+A man undercover, but you tore me apart
+Ooh-hoo
+Now I've found a real love, you'll never fool me again
+Last Christmas, I gave you my heart
+But the very next day, you gave it away (you gave it away)
+This year, to save me from tears
+I'll give it to someone special (special)
+Last Christmas, I gave you my heart (I gave you my heart)
+But the very next day, you gave it away (you gave it away)
+This year, to save me from tears
+I'll give it to someone special (special)
+A face on a lover with a fire in his heart (I gave you my heart)
+A man undercover, but you tore him apart
+Maybe next year, I'll give it to someone
+I'll give it to someone special (special!)
+So long!
