@@ -1,8 +1,13 @@
 Last Christmas
+
 Oh, oh-oh, ooh-oh-oh-oh
+
 Ah-ah
+
 Last Christmas, I gave you my heart
+
 But the very next day, you gave it away
+
 This year, to save me from tears
 I'll give it to someone special
 Last Christmas, I gave you my heart
